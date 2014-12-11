@@ -1,2 +1,0 @@
-Chat ist in Bearbeitung.
-
